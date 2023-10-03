@@ -1,0 +1,7 @@
+- 🌹 Yhooooo, This is Priyansha Swami -git
+- 🐞 I’m interested in ...soon declare
+- 🌱 I’m currently learning ...nothing special for you... but everything for me
+- 🙈 I’m looking to collaborate on ... soon declare
+- 📫 How to reach me ... even i don't know, how did i reach to myself
+- 😌 Well newbie coder and deeply confused 3/10/2023...
+--- />
